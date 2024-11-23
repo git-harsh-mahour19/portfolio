@@ -1,2 +1,2 @@
-# git-harsh-mahour19.github.io.
+# git-harsh-mahour19
 job portfolio created by Harsh (Male)
